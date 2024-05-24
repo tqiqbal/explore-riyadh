@@ -10,3 +10,4 @@ Exciting places to visit in Riyadh
 7. Lake Park (breakfast) https://maps.app.goo.gl/XVxg41Vs212WSZjT6
 8. Al Haer park Khamsa khamsa Al Haeer Park Khamsa Khamsa
 9. Sha'ib Luha Pool https://goo.gl/maps/nkvvgtXLvkHaj61A8
+10.Fantastic place(Zoo and parkhttps://www.instagram.com/reel/C6x86-HsiA2/?igsh=MW9jaXg4b21sMjVseA==    ) https://maps.app.goo.gl/pvbJvXJxhYfpGG9F7?g_st=iwb
